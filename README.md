@@ -1,1 +1,0 @@
-# Quiz-perguntas-basico
